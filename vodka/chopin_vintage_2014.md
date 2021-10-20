@@ -7,6 +7,9 @@ Chopin Vintage is a distillate from late autumn potato aged in a polish oak barr
 
 ## Notes: 
 Nose: horseradish, prunes, cinnamon
-Taste: sweet, chocolate, horseradish
+
+Taste: sweet, chocolate, horseradish, plums
+
+Finish: pepper, allspice
 
 ### Rate 75/100
